@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **johnrasu21@gmail.com**
 
-- ⚡ Fun fact [sunday Cricket](sunday Cricket)
+- ⚡ Fun fact [sunday Cricket]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
